@@ -8,12 +8,15 @@
 
 # General concepts about deconstruction and individuality
 
-Querida familia y amigos,
+## Introduction
+
+Chiara: Querida familia y amigos,
 yo soy Chiara, fui a la escuela con Jana en Hannover y hoy tengo el honor de oficiar la ceremonia de la boda de Santi y Jana - en este hermoso lugar. Después de una ceremonia civil en Alemania hace exactamente un año, quisieron celebrar su amor con todos, aquí en el norte de Argentina.
 
-Hallo, ich bin Gonzalo, ein Freund von Santi aus der Schule. Wir freuen uns, euch in diesen Tälern zu empfangen, die uns sehr am Herzen liegen. Wir könnten uns keinen besseren Ort vorstellen, um Jana und Santis Liebe zu feiern.  
+Gonzalo: Hallo, ich bin Gonzalo, ein Freund von Santi aus der Schule. Wir freuen uns, euch in diesen Tälern zu empfangen, die uns sehr am Herzen liegen. Wir könnten uns keinen besseren Ort vorstellen, um Jana und Santis Liebe zu feiern.  
 
 
+## Second part
 
 Nos encontramos aquí para festejar el proyecto que empezaron a formar hace algunos anios, Santiago y Jana.
 Un proyecto que quizas ya trazaba sus causes mucho antes. 
@@ -21,11 +24,22 @@ Un proyecto que quizas ya trazaba sus causes mucho antes.
 Wir sind hier, um das Vorhaben zu feiern, das Santiago und Jana vor ein paar Jahren ins Leben gerufen haben.
 Ein Vorhaben, das vielleicht schon lange vorher seine Wurzeln geschlagen hat.
 
+## Third part
+
 Santiago y Jana, son el resultado de sus historias, de sus temores y sueños individuales, santiago y jana, juntos, son el cruce de vidas que los invitados aqui reunidos pudimos compartir, formar y ver cursar aguas serenas, turbulentas, y bastante internacionales.   
 
-Pequeńos sucesos los forman, y marcan el camino a esta celebración. Cuando pensábamos Chiara sobre que queríamos decir con esta reunión, una idea recurrente fue hechizo. Un hechizo, después de todo, es un sello sobre intenciones, intenciones que su amor continuarán.   
+Santiago und Jana sind das Ergebnis ihrer Geschichten, ihrer individuellen Ängste und Träume, Santiago und Jana sind zusammen die Kreuzung von Leben, die wir, die hier versammelten Gäste, teilen, formen und durch ruhige, turbulente und ziemlich internationale Gewässer fließen sehen konnten.   
 
- Antes de pasar a este sello, queremos traer en recuerdo, nosotros, los papás, mamás, abuelos, hermanos, mellizos, amigos. Cristina me contó que Santiago cuando era niño, describió el pasar de los días como las hojas de un libro que se dan vuelta. Este libro existe, aún a la distancia, aún en el pasado, aún en el silencio. Tomemos un momento, para que santi y jana, y ustedes sus invitados, puedan observarse, y recordar en la mirada historias que nos trajeron a todos juntos aquí. 
+## Fourth Part
+
+Pequeńos sucesos los forman, y marcan el camino a esta celebración. Queremos en esta reunion sellar estos sentimientos que continuaran viviendo en Jana y Santi.
+
+Kleine Ereignisse prägen sie und markieren den Weg zu diesem Fest. Wir wollen an diesem Tag diese Gefühle besiegeln, die in Jana und Santi weiterleben werden.
+
+
+## FIfth part
+
+Antes de pasar a este sello, queremos traer en recuerdo, nosotros, los papás, mamás, abuelos, hermanos, mellizos, amigos. Cristina me contó que Santiago cuando era niño, describió el pasar de los días como las hojas de un libro que se dan vuelta. Este libro existe, aún a la distancia, aún en el pasado, aún en el silencio. Tomemos un momento, para que santi y jana, y ustedes sus invitados, puedan observarse, y recordar en la mirada historias que nos trajeron a todos juntos aquí. 
 
 
 How they meet
