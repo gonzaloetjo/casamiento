@@ -26,9 +26,9 @@ Ein Vorhaben, das vielleicht schon lange vorher seine Wurzeln geschlagen hat.
 
 ## Third part
 
-Santiago y Jana, son el resultado de sus historias, de sus temores y sueños individuales, santiago y jana, juntos, son el cruce de vidas que los invitados aqui reunidos pudimos compartir, formar y ver cursar aguas serenas, turbulentas, y bastante internacionales.   
+```Santiago y Jana, son el resultado de sus historias, de sus temores y sueños individuales, santiago y jana, juntos, son el cruce de vidas que los invitados aqui reunidos pudimos compartir, formar y ver cursar aguas serenas, turbulentas, y bastante internacionales. ```  
 
-Santiago und Jana sind das Ergebnis ihrer Geschichten, ihrer individuellen Ängste und Träume, Santiago und Jana sind zusammen die Kreuzung von Leben, die wir, die hier versammelten Gäste, teilen, formen und durch ruhige, turbulente und ziemlich internationale Gewässer fließen sehen konnten.   
+```Santiago und Jana sind das Ergebnis ihrer Geschichten, ihrer individuellen Ängste und Träume, Santiago und Jana sind zusammen die Kreuzung von Leben, die wir, die hier versammelten Gäste, teilen, formen und durch ruhige, turbulente und ziemlich internationale Gewässer fließen sehen konnten.   ```
 
 ## Fourth Part
 
