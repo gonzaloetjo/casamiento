@@ -14,12 +14,14 @@ yo soy Chiara, fui a la escuela con Jana en Hannover y hoy tengo el honor de ofi
 Hallo, ich bin Gonzalo, ein Freund von Santi aus der Schule. Wir freuen uns, euch in diesen Tälern zu empfangen, die uns sehr am Herzen liegen. Wir könnten uns keinen besseren Ort vorstellen, um Jana und Santis Liebe zu feiern.  
 
 
-Nos encontramos aquí para festejar el proyecto que empezaron a formar hace algunos anios, Santiago y Jana.
-Un proyecto que quizas ya trazaba sus causes mucho antes. 
+We are here to celebrate the project that Santiago and Jana started a few years ago. A project that perhaps already drew its causes long before. 
 
-Santiago y Jana, son el resultado de sus historias, de sus temores y sueños individuales, santiago y jana, juntos, son el cruce de vidas que los invitados aqui reunidos pudimos compartir, formar y ver cursar aguas serenas, turbulentas, y bastante internacionales.   
+Santiago and Jana, are the result of their stories, of their individual fears and dreams, Santiago and Jana, together, are the crossroads of lives that the guests gathered here could share, form and see course serene, turbulent, and quite international waters.   
 
-Pequeńos sucesos los forman, y marcan el camino a esta celebración. Cuando pensábamos Chiara sobre que queríamos decir con esta reunión, una idea recurrente fue hechizo. Un hechizo, después de todo, es un sello sobre intenciones, intenciones que su amor continuarán.   
+Small events form them, and mark the way to this celebration. When we were thinking Chiara about what we meant by this meeting, a recurring idea was spell. A spell, after all, is a seal on intentions, intentions that your love will continue.   
+
+Before moving on to this seal, we want to bring in remembrance, we, the dads, moms, grandparents, siblings, twins, friends. Cristina told me that Santiago, when he was a child, described the passing of the days as the pages of a book turning over. This book exists, even in the distance, even in the past, even in silence. Let's take a moment, so that Santi and Jana, and you, their guests, can look at each other, and recall in our eyes the stories that brought us all together here. 
+
 
  Antes de pasar a este sello, queremos traer en recuerdo, nosotros, los papás, mamás, abuelos, hermanos, mellizos, amigos. Cristina me contó que Santiago cuando era niño, describió el pasar de los días como las hojas de un libro que se dan vuelta. Este libro existe, aún a la distancia, aún en el pasado, aún en el silencio. Tomemos un momento, para que santi y jana, y ustedes sus invitados, puedan observarse, y recordar en la mirada historias que nos trajeron a todos juntos aquí. 
 
@@ -49,6 +51,18 @@ En esta celebración queremos fundar memorias, sentimientos, deseos y alegrias, 
 Queremos quemar estas ideas, que continuarán viviendo en Santiago y Jana. Sellaremos el comienzo de este nuevo viaje en un beso.   
    
 Santiago Y Jana están en el alba de su vida juntos, pero las causes de este río comenzaron mucho antes. Con esta celebración, agradecemos a Santiago y Jana por invitarnos a ser parte, y a continuar estando en sus vidas, ahora con Jana en nuestras vidas, ahora con Santi en nuestras vidas.
+
+Gonzalo: Dear guests from Germany. Welcome, Bienvenidos.
+
+
+
+Chiara part:
+
+DISCOURSE 
+
+Dear family and friends,
+yo soy Chiara, I went to school with Jana in Hanover and today I have the honor of officiating through Santi and Jana's wedding ceremony - in this beautiful place.
+After getting married in a civil ceremony exactly one year ago in Germany, they wanted to celebrate their love again with everyone, here in Argentina. 
 
 Gonzalo: Dear guests from Germany. Welcome, Bienvenidos.
 
@@ -84,3 +98,9 @@ They said that when they met Santi, they looked into his shining eyes. To Santi:
 
 Since the first time you met, you wrote every day. The first thing Santi did was send you a song. And that became your ritual, sending each other songs across the distance between Talinn and Hamburg. You then made a playlist. With the name 14f. On the first song you wrote, Santi: Here is a song that will brighten your day. 
 We'll listen to it now from xy.
+
+Santi, I know Jana from her youth. She had a great thirst for life and was very romantic. She always listened to Italian love songs when she was young.
+
+She dared a lot. She always dared to be in love with everything that goes with it. She dared to experience a lot. She always had an inner open attitude. Santi, I have the feeling that in the relationship with you, the youthful Jana reappears, the passionate being in love and the Jana who lets go, because with you somehow everything seems possible. It's an adult adolescent love, something that grows bigger together, that goes deep. 
+
+I can't tell you two much about marriage, but I can say how I and Mela and Franzi perceive you - as a couple. You are thoughtful with each other. You look out for each other. Jana, you grew up with a sister in Germany and Santi in an extended family on the other side of the world. You come from different continents. But you constantly try to understand each other's needs and feel responsible for each other. And maybe that is what matters.
