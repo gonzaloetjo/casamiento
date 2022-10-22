@@ -2,7 +2,7 @@
 
 ## Introduction of us
 
-### Chira
+### Chiara
 Querida familia y amigos,
 yo soy Chiara, fui a la escuela con Jana en Hannover y hoy tengo el honor de oficiar la ceremonia de la boda de Santi y Jana - en este hermoso lugar. Después de una ceremonia civil en Alemania hace exactamente un año, quisieron celebrar su amor con todos, aquí en el norte de Argentina.
 
@@ -12,7 +12,7 @@ yo soy Chiara, fui a la escuela con Jana en Hannover y hoy tengo el honor de ofi
 
 ## Introduction to wedding |  rooths part 1
 
-### Chira
+### Chiara
 Wir sind hier, um die Verbindung zu feiern, das Santiago und Jana vor ein paar Jahren ins Leben gerufen haben.
 Ein Verbindung, das vielleicht schon lange vorher seine Wurzeln geschlagen hat.
 
@@ -25,7 +25,7 @@ Un proyecto que quizas ya trazaba sus causes mucho antes.
 ### Gonzalo
 Santiago y Jana, son el resultado de sus historias, de sus temores y sueños individuales, santiago y jana, juntos, son el cruce de vidas que los invitados aqui reunidos pudimos compartir, formar y ver cursar aguas serenas, turbulentas, y bastante internacionales.   
 
-### Chira
+### Chiara
 Santiago und Jana sind das Ergebnis ihrer Geschichten, ihrer individuellen Ängste und Träume, Santiago und Jana sind zusammen die Kreuzung von Leben, die wir, die hier versammelten Gäste, teilen, formen und durch ruhige, turbulente und ziemlich internationale Gewässer fließen sehen konnten.   
 
 ## Seal introduction
@@ -33,7 +33,7 @@ Santiago und Jana sind das Ergebnis ihrer Geschichten, ihrer individuellen Ängs
 ### Gonzalo
 Pequeńos sucesos los forman, y marcan el camino a esta celebración. Queremos en esta reunion sellar estos sentimientos que continuaran viviendo en Jana y Santi.
 
-### Chira
+### Chiara
 Kleine Ereignisse prägen sie und markieren den Weg zu diesem Fest. Wir wollen an diesem Tag diese Gefühle besiegeln, die in Jana und Santi weiterleben werden.
 
 ## FIfth part
@@ -41,7 +41,7 @@ Kleine Ereignisse prägen sie und markieren den Weg zu diesem Fest. Wir wollen a
 ### Gonzalo
 Cristina, la made de santi, me contó que Santiago cuando era niño, describió el pasar de los días como las hojas de un libro que se dan vuelta. Este libro existe, aún a la distancia, aún en el pasado, aún en el silencio. Tomemos un momento, para que santi y jana, y ustedes sus invitados, puedan observarse, y recordar en la mirada historias que nos trajeron a todos juntos aquí. 
 
-### Chira
+### Chiara
 Cristina, die Mutter von Santi, erzählte mir, dass Santiago als Kind das Vergehen der Tage wie das Umblättern eines Buches beschrieben hat.Dieses Buch existiert, auch in der Ferne, auch in der Vergangenheit, auch in der Stille. Dieses Buch existiert, auch in der Ferne, auch in der Vergangenheit, auch in der Stille. Lasst uns einen Moment innehalten, damit Santi und Jana und ihr, ihre Gäste, einander ansehen und sich mit dem Blick an die Geschichten erinnern können, die uns alle hier zusammengeführt haben. 
 
 ## Sixth part
@@ -49,7 +49,7 @@ Cristina, die Mutter von Santi, erzählte mir, dass Santiago als Kind das Vergeh
 ### Gonzalo
 Santi and Jana, queremos que se aprovechen este momento para mirar a su alrededor, sentir la tierra, los aires secos, las miradas y sentimientos de sus invitados. 
 
-### Chira
+### Chiara
 Santi und Jana, wir möchten, dass ihr euch einen Moment Zeit nehmt, um euch umzusehen, die Erde zu spüren, die trockene Luft, die Blicke und Gefühle eurer Gäste. 
 
 ## Silence and Tardei:
@@ -59,7 +59,7 @@ Santi und Jana, wir möchten, dass ihr euch einen Moment Zeit nehmt, um euch umz
 Ask people for stories
 ## Janas and Santis meeting | Talk with Jana
 
-### Chira
+### Chiara
 Als ich hier hingeflogen bin, musste ich ständig an euch denken. Denn über den Wolken hat alles angefangen. Jana war Flugbegleiterin und Santi Passagier.
 
 Als Jana und ich letztens noch einmal über das Kennenlernen gesprochen haben, meinte sie: „ich weiß es noch wie heute. Er saß auf Platz 14f am Fenster.“
@@ -71,7 +71,7 @@ Cuando Jana y Chiara recordaron como se conocieron recentemente, jana dijo: "Tod
 
 ## Janas and Santis meeting | Getting in love
 
-### Chira
+### Chiara
 Noch nie hat Jana bei der Sicherheitsvorführung so viel Aufmerksamkeit bekommen, wie von Santi. Er hat ihr die ganze Zeit fest in die Augen geschaut. Sofort danach ging Jana aufgeregt zu ihrem Kollegen und meinte: Ich habe mich verliebt. In den Passagier auf 14 f.
 
 Und sie hat ihm gesagt, du musst mir die Reihe 14 geben, damit ich mit ihm sprechen kann.
@@ -85,7 +85,7 @@ Le preguntó si quería helado o no, pero enseguida se olvidó del helado. Mient
 
 ## Janas and Santis meeting | Getting in contact
 
-### Chira
+### Chiara
 Und dann ist sie durchs ganze Flugzeug gelaufen und hat jedem erzählt, dass sie verliebt ist. Jedes Mal, wenn sie an ihm vorbeigelaufen ist, haben sich ihre Blicke gekreuzt.
 Jana hat sich ausgemalt, wer er wohl ist, was er wohl macht. Vielleicht ist er Spanier und arbeitet in Toulouse bei Airbus? 😂 Vielleicht kommt er aus den Pyreneen…
 
@@ -104,7 +104,7 @@ Después de aterrizar, Santi le dio a Jana el resto de las servilletas para el c
 
 ## Janas and Santis meeting | Aftermath
 
-### Chira
+### Chiara
 Als ich Jana gefragt habe, was es ist, was sie verzaubert hat, meinte sie: „ich hab mich in seine Augen verliebt. Ganz groß und dunkel, so ehrlich und lieb.“ Für Jana war es Liebe auf den ersten Blick.
 
 Dass auch Janas Eltern das zu mir sagen würde, hat mich nicht überrascht.
@@ -126,7 +126,7 @@ Desde que os conocisteis, habéis escrito todos los días. Lo primero que hizo S
 ### Gonzalo
 Los ninios recolectaran sus cartas para Jana y Santi. En esta celebración queremos fundar memorias, sentimientos, deseos y alegrias, queremos, aunque sea conceptualmente, sellar en llamas los sentimientos de este día, y la suma de jornadas que nos trajeron aquí,  el libro de jana y Santi empezó mucho antes y se continuarán entre ellos dos, entre sus familias, sus amigos, ahora unidos.  
 
-### Chira
+### Chiara
 Die Kinder werden ihre Briefe an Jana und Santi sammeln. In dieser Feier wollen wir Erinnerungen, Gefühle, Wünsche und Freuden finden, wir wollen, die Gefühle dieses Tages und die Summe der Reisen, die uns hierher gebracht haben, in Flammen konsevieren. Das Buch von Jana und Santi begann lange vorher und wird weitergehen zwischen den beiden, zwischen ihren Familien, ihren Freunden, die nun hier vereint sind.  
 
 ## Ending | Burning
@@ -134,7 +134,7 @@ Die Kinder werden ihre Briefe an Jana und Santi sammeln. In dieser Feier wollen 
 ### Gonzalo
 Queremos quemar estaos deseos, que continuarán viviendo en Santiago y Jana. Sellaremos el comienzo de este nuevo viaje en un beso.   
 
-### Chira
+### Chiara
 Wir wollen diese Wünsche verbrennen, die in Santiago und Jana weiterleben werden. Wir werden den Beginn dieser neuen Reise mit einem Kuss besiegeln. 
 
 - Here they burn the papers
