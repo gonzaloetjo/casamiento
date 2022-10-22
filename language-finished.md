@@ -36,7 +36,7 @@ Pequeńos sucesos los forman, y marcan el camino a esta celebración. Queremos e
 ### Chiara
 Kleine Ereignisse prägen sie und markieren den Weg zu diesem Fest. Wir wollen an diesem Tag diese Gefühle besiegeln, die in Jana und Santi weiterleben werden.
 
-## FIfth part
+## Book memory
 
 ### Gonzalo
 Cristina, la made de santi, me contó que Santiago cuando era niño, describió el pasar de los días como las hojas de un libro que se dan vuelta. Este libro existe, aún a la distancia, aún en el pasado, aún en el silencio. Tomemos un momento, para que santi y jana, y ustedes sus invitados, puedan observarse, y recordar en la mirada historias que nos trajeron a todos juntos aquí. 
@@ -44,7 +44,7 @@ Cristina, la made de santi, me contó que Santiago cuando era niño, describió 
 ### Chiara
 Cristina, die Mutter von Santi, erzählte mir, dass Santiago als Kind das Vergehen der Tage wie das Umblättern eines Buches beschrieben hat.Dieses Buch existiert, auch in der Ferne, auch in der Vergangenheit, auch in der Stille. Dieses Buch existiert, auch in der Ferne, auch in der Vergangenheit, auch in der Stille. Lasst uns einen Moment innehalten, damit Santi und Jana und ihr, ihre Gäste, einander ansehen und sich mit dem Blick an die Geschichten erinnern können, die uns alle hier zusammengeführt haben. 
 
-## Sixth part
+## Ask for Silence
 
 ### Gonzalo
 Santi and Jana, queremos que se aprovechen este momento para mirar a su alrededor, sentir la tierra, los aires secos, las miradas y sentimientos de sus invitados. 
@@ -56,7 +56,26 @@ Santi und Jana, wir möchten, dass ihr euch einen Moment Zeit nehmt, um euch umz
 
 ## Introduction to stories
 
-Ask people for stories
+### Ask people for stories
+
+#### Chiara Story
+
+When I was a child, I wanted Jana to marry my little brother when we grew up. You want the very best for your family :D
+Jana is brave and relaxed and spontaneous. She has a heart of gold and when she walks into the room, she fills it right up with her radiance. She is a great friend, understanding, always with a look that tells you: I love you. And always there for you.
+
+In her youth she had a great thirst for life and was very romantic. She always listened to Italian love songs as a teenager and believed in great love. For Jana's parents it was clear that she would not stay in Germany forever. Too cold.
+
+She was very brave. She always dared to be in love with everything that goes with it. She dared to experience a lot. She always had an inner open attitude. Santi, I have the feeling that in the relationship with you, the youthful Jana comes out again, the passionate being in love and the Jana who lets go because with you somehow everything seems possible.
+
+#### Gonzalo Story
+
+Those who know Santiago, know that his ideas are well elaborated, and if you start a discussion, you will not be able to convince him with half-baked ideas, you have to be sharp or he will turn you over like a tortilla. 
+    
+So we discussed with Santiago infinite times, at the edge of the Seine, in the streets of Tallin, in the cathedral of Toledo or in ingeniero maswzirts, and in all of them Santiago was sure, and even almost won the discussions.  
+
+Last year, a few months before the wedding, he visited me in Paris, and we started the traditional discussions about responsibilities, life and how to face death. Santiago was questioning me about the marriage and about life projects, and I was preparing myself for a discussion to death, but soon after I realized that Santiago was different, he was hesitant, afraid.  
+
+After a cigarette, a tired Santiago told me that he really didn't know very well what to expect from marriage and long projects. I asked him if he was sure what we has doing. Santiago looked at me as he didn't understand what I was saying, and told me, "since i've starting knowing Jana, i knew it's the person I want to form a family with, and now i'm afraid to lose this". There was no argument to win this time, no logical ideas, just his feelings. I meet Jana soon after, and seeing them together I understood more clearly what he meant. 
 ## Janas and Santis meeting | Talk with Jana
 
 ### Chiara
@@ -155,7 +174,6 @@ Mit dieser Feier danken wir Santiago und Jana dafür, dass sie uns eingeladen ha
 
 Mi amistad con Santiago creció en transición, en transición de culturas, amistades y relaciones. Tuve la suerte de tener un compañero en otro continente, y aún más que un amigo, un contrincante constante.  
 Quienes conocen a Santiago, saben que sus ideas están bien elaboradas, y si empiezas una discusión, no vas a poder convencerlo con ideas a medios hacer, Tenes que estar filoso o te va a dar vuelta como una tortilla. 
-
     
 Así discutimos con Santiago infinitas veces, al borde del Sena, en las calles de Tallin, en la catedral de Toledo o en ingeniero maswzirts, y en todas Santiago estuvo seguro, y hasta casi gano las discusiones.  
 
