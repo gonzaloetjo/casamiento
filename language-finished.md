@@ -19,9 +19,9 @@ Als ich hier hingeflogen bin, musste ich ständig an euch denken. Denn über den
 Als Jana und ich letztens noch einmal über das Kennenlernen gesprochen haben, meinte sie: „ich weiß es noch wie heute. Er saß auf Platz 14f am Fenster.“
 
 #### Gonzalo
-Cuando volamos aquí, no podiamos dejar de pensar en ustedes. Porque todo empezó por encima de las nubes. Jana era una azafata y Santi un pasajero.
 
-Cuando Jana y Chiara recordaron como se conocieron recentemente, jana dijo: "Todavía lo recuerdo como si fuera hoy. Estaba sentado en el asiento 14f junto a la ventana".
+Empezo en los cielos, con Jana de azafata y Santi un pasajero.
+
 
 ### Janas and Santis meeting | Getting in love
 
@@ -32,10 +32,10 @@ Und sie hat ihm gesagt, du musst mir die Reihe 14 geben, damit ich mit ihm sprec
 Sie hat ihn gefragt, ob er Eis wollte oder nicht, aber sie hat das Eis direkt vergessen. Während sie mit ihm gesprochen hat, fand sie ihn direkt noch toller. Sie mochte seine Stimme. Süß und sympathisch sah er aus, hat Jana erzählt. Ein bisschen boheme und cool und intellektuell mit seiner runden Brille, seinem Buch und seinem Wollpullover.
 
 #### Gonzalo
-Jana nunca recibió tanta atención en el control de seguridad como la que recibió de Santi. La miró firmemente a los ojos todo el tiempo. Inmediatamente después, Jana se dirigió emocionada a su colega y le dijo: "Me he enamorado. Con el pasajero en 14 f.
+Jana nunca recibió tanta atención en el control de seguridad como la que le dio santi, no la dejaba de ver firmemente a los ojos todo el tiempo. Jana de ahi fue, se dirigio emocionada a su colega y le dijo "Me he enamorado. Con el pasajero en 14f" y le pidio cambiar las filas para poder hablar mas con el. 
 
-Y le dijo, tienes que darme la fila 14 para que pueda hablar con él.
-Le preguntó si quería helado o no, pero enseguida se olvidó del helado. Mientras hablaba con él, inmediatamente pensó que era aún más interesante. Le gustaba su voz. Parecía dulce y simpático. Un poco bohemio y cool y intelectual con sus gafas redondas, su libro y su jersey de lana.
+Le preguntó si quería helado o no, pero enseguida se olvidó del helado. 
+Segun Jana mientras hablaba con él le comenzo a gustar mas, le parecia un poco bohemio, cool e intelectual con sus gafas redondas, su libro y su jersey de lana.
 
 ### Janas and Santis meeting | Getting in contact
 
@@ -67,7 +67,7 @@ Sie meinten, als sie Santi kennengelernt haben, haben sie in seine strahlenden A
 Seitdem ihr euch das erste Mal getroffen habt, habt ihr jeden Tag geschrieben. Das erste, was Santi gemacht hat, war dir ein Lied zu schicken. Und das wurde dann euer Ritual, ihr habt euch Lieder geschickt über die Distanz zwischen Talinn und Hamburg. Du hast daraufhin eine Playlist gemacht. Mit dem Namen 14f.
 
 #### Gonzalo
-Cuando le pregunté a Jana qué fue lo que le encantó, me dijo: "Me enamoré de sus ojos. Todo grande y oscuro, tan honesto y dulce". Para Jana fue amor a primera vista.
+Cuando le pregunté a Santiago qué recordo de ese momento, me dijo le llamo la atencion la actitud de Jana, la valentia con la (completar) 
 
 Que los padres de Jana también me dijeran lo mismo no me sorprendió.
 Dijeron que cuando conocieron a Santi, miraron sus ojos brillantes. Para Santi: Cita: No podríamos pedir un mejor yerno.
