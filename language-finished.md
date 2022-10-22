@@ -76,69 +76,6 @@ So we discussed with Santiago infinite times, at the edge of the Seine, in the s
 Last year, a few months before the wedding, he visited me in Paris, and we started the traditional discussions about responsibilities, life and how to face death. Santiago was questioning me about the marriage and about life projects, and I was preparing myself for a discussion to death, but soon after I realized that Santiago was different, he was hesitant, afraid.  
 
 After a cigarette, a tired Santiago told me that he really didn't know very well what to expect from marriage and long projects. I asked him if he was sure what we has doing. Santiago looked at me as he didn't understand what I was saying, and told me, "since i've starting knowing Jana, i knew it's the person I want to form a family with, and now i'm afraid to lose this". There was no argument to win this time, no logical ideas, just his feelings. I meet Jana soon after, and seeing them together I understood more clearly what he meant. 
-## Janas and Santis meeting | Talk with Jana
-
-### Chiara
-Als ich hier hingeflogen bin, musste ich ständig an euch denken. Denn über den Wolken hat alles angefangen. Jana war Flugbegleiterin und Santi Passagier.
-
-Als Jana und ich letztens noch einmal über das Kennenlernen gesprochen haben, meinte sie: „ich weiß es noch wie heute. Er saß auf Platz 14f am Fenster.“
-
-### Gonzalo
-Cuando volamos aquí, no podiamos dejar de pensar en ustedes. Porque todo empezó por encima de las nubes. Jana era una azafata y Santi un pasajero.
-
-Cuando Jana y Chiara recordaron como se conocieron recentemente, jana dijo: "Todavía lo recuerdo como si fuera hoy. Estaba sentado en el asiento 14f junto a la ventana".
-
-## Janas and Santis meeting | Getting in love
-
-### Chiara
-Noch nie hat Jana bei der Sicherheitsvorführung so viel Aufmerksamkeit bekommen, wie von Santi. Er hat ihr die ganze Zeit fest in die Augen geschaut. Sofort danach ging Jana aufgeregt zu ihrem Kollegen und meinte: Ich habe mich verliebt. In den Passagier auf 14 f.
-
-Und sie hat ihm gesagt, du musst mir die Reihe 14 geben, damit ich mit ihm sprechen kann.
-Sie hat ihn gefragt, ob er Eis wollte oder nicht, aber sie hat das Eis direkt vergessen. Während sie mit ihm gesprochen hat, fand sie ihn direkt noch toller. Sie mochte seine Stimme. Süß und sympathisch sah er aus, hat Jana erzählt. Ein bisschen boheme und cool und intellektuell mit seiner runden Brille, seinem Buch und seinem Wollpullover.
-
-### Gonzalo
-Jana nunca recibió tanta atención en el control de seguridad como la que recibió de Santi. La miró firmemente a los ojos todo el tiempo. Inmediatamente después, Jana se dirigió emocionada a su colega y le dijo: "Me he enamorado. Con el pasajero en 14 f.
-
-Y le dijo, tienes que darme la fila 14 para que pueda hablar con él.
-Le preguntó si quería helado o no, pero enseguida se olvidó del helado. Mientras hablaba con él, inmediatamente pensó que era aún más interesante. Le gustaba su voz. Parecía dulce y simpático. Un poco bohemio y cool y intelectual con sus gafas redondas, su libro y su jersey de lana.
-
-## Janas and Santis meeting | Getting in contact
-
-### Chiara
-Und dann ist sie durchs ganze Flugzeug gelaufen und hat jedem erzählt, dass sie verliebt ist. Jedes Mal, wenn sie an ihm vorbeigelaufen ist, haben sich ihre Blicke gekreuzt.
-Jana hat sich ausgemalt, wer er wohl ist, was er wohl macht. Vielleicht ist er Spanier und arbeitet in Toulouse bei Airbus? 😂 Vielleicht kommt er aus den Pyreneen…
-
-Der Flug ging zu Ende. Ihr älterer Kollege meinte, bring ihm was, du wirst es bereuen, wenn du’s nicht machst.
-Also ist sie mit einer Schachtel Pralinen zu ihm gegangen. Jana dachte nur, dass sie es ein bisschen unangenehm findet, aber hat an Franzi gedacht, die immer sagt, man muss sich den unbequemen Sachen stellen.
-
-Nach der Landung drückte Santi Jana den Rest der Servietten für die Schokolade in die Hand. Mit seiner Email drauf.
-
-### Gonzalo
-Y luego se paseó por todo el avión y les dijo a todos que estaba enamorada. Cada vez que pasaba junto a él, sus miradas se cruzaban.
-Jana imaginó quién podría ser, qué podría hacer. ¿Quizás es español y trabaja en Airbus en Toulouse? 😂 Quizá venga de los Pirineos....
-
-El vuelo estaba llegando a su fin. Su colega le dijo que le llevara algo, o se arrepentiría luego. Así que se dirigió a él con una caja de bombones. A Jana le pareció un poco incómodo, pero pensó en Franzi, que siempre dice que hay que afrontar las cosas incómodas.
-
-Después de aterrizar, Santi le dio a Jana el resto de las servilletas para el chocolate. Con su correo electrónico.
-
-## Janas and Santis meeting | Aftermath
-
-### Chiara
-Als ich Jana gefragt habe, was es ist, was sie verzaubert hat, meinte sie: „ich hab mich in seine Augen verliebt. Ganz groß und dunkel, so ehrlich und lieb.“ Für Jana war es Liebe auf den ersten Blick.
-
-Dass auch Janas Eltern das zu mir sagen würde, hat mich nicht überrascht.
-Sie meinten, als sie Santi kennengelernt haben, haben sie in seine strahlenden Augen geschaut. Zu Santi: Zitat: Wir können uns keinen besseren Schwiegersohn wünschen.
-
-Seitdem ihr euch das erste Mal getroffen habt, habt ihr jeden Tag geschrieben. Das erste, was Santi gemacht hat, war dir ein Lied zu schicken. Und das wurde dann euer Ritual, ihr habt euch Lieder geschickt über die Distanz zwischen Talinn und Hamburg. Du hast daraufhin eine Playlist gemacht. Mit dem Namen 14f.
-
-### Gonzalo
-Cuando le pregunté a Jana qué fue lo que le encantó, me dijo: "Me enamoré de sus ojos. Todo grande y oscuro, tan honesto y dulce". Para Jana fue amor a primera vista.
-
-Que los padres de Jana también me dijeran lo mismo no me sorprendió.
-Dijeron que cuando conocieron a Santi, miraron sus ojos brillantes. Para Santi: Cita: No podríamos pedir un mejor yerno.
-
-Desde que os conocisteis, habéis escrito todos los días. Lo primero que hizo Santi fue enviarle una canción. Y eso se convirtió en su ritual, enviarse canciones a través de la distancia entre Talinn y Hamburgo. A continuación, has hecho una lista de reproducción. Con el nombre 14f.
-
 
 ## Ending | Intro
 
